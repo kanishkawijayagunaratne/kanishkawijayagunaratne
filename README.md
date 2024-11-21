@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on interesting projects that stretch my abilities and teach me new things
 - 📫 How to reach me: kanishkawijayagunaratne@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: my second toe is longer than the first
+- ⚡ Fun fact: I finished high school in Singapore
 
 <!---
 kanishkawijayagunaratne/kanishkawijayagunaratne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
